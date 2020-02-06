@@ -1,2 +1,2 @@
 # Education
-https://mahbubrahman99.github.io/Education/
+https://mahbub099.github.io/Education/
